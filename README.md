@@ -20,6 +20,6 @@ I’m always open to collaborating on exciting projects! If you have an idea or 
 
 ## 📫 How to Reach Me
 - [LinkedIn](https://www.linkedin.com/in/prestonpolston) 
-- Email: polston13@outlook.com
+- [Email] polston13@outlook.com
 
 ---
